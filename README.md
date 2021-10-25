@@ -1,1 +1,1 @@
-# Speed-racer-class-39-
+# V2-C39-Class-Activity-Template
